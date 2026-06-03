@@ -1,4 +1,4 @@
-# 
+# Nuevo high-frequency trading bot complementos para Mac OS | Oficial high-frequency trading bot complementos para PC Windows. Con fuentes de precios en tiempo real y motor de backtesting — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
